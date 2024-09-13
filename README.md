@@ -1,0 +1,1 @@
+# tecnicas-computacionais-refletindo-sobreIA-nataly3b
